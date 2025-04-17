@@ -28,4 +28,4 @@
 
 ---
 
-Feel free to check out my [resume site](https://mnaziri1998.github.io/Manzoor-Resume-/) or connect with me through email.
+Feel free to connect with me through email.
